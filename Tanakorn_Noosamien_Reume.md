@@ -42,7 +42,7 @@ Tel: (509) 855 8727    |    Email: [tanakornnoosamien@gmail.com](mailto:tanakorn
 
 ------
 
-### BUSINESS EXPERIENCE
+## BUSINESS EXPERIENCE
 
 **Financial Analyst - Mission National Bank** | *San Francisco, CA - 2015 – 2016*
 
